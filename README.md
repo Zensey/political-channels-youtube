@@ -68,6 +68,7 @@
 | Мой протест | https://www.youtube.com/channel/UC0krbm_eZfTG9wBdaPpFMfA||
 | Мрачные поселки (г. Буй, Костромская обл.) | https://www.youtube.com/channel/UC4GRaoRRnhiJVXS7urypFuA||
 | Навальный Live | https://www.youtube.com/channel/UCgxTPTFbIbCWfTR9I2-5SeQ/videos||
+| Народная газета | https://www.youtube.com/channel/UCgZ4wziI-tPZuFT6Dsul5FA||
 | Не будь инертным  НБИ | https://www.youtube.com/channel/UC1mHZJY44bfZDz3QU7lfILw||
 | НЕ ПЕРВЫЙ КАНАЛ | https://www.youtube.com/channel/UCDIX7PZESQ3xIjmGhxNI39A||
 | Новости Сверхдержавы | https://www.youtube.com/channel/UCt6nsWw2kQNszwpuuHoxBLA/videos||
